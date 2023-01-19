@@ -627,3 +627,5 @@ Misalkan, ketika seseorang benar benar paham bagai mana cara mengenal Allah sela
 Sampai di sini dulu, apa yang bisa saya tuliskan untuk anda. Terima kasih telah meluangkan waktu nya, mudah mudahan ini bisa membuka cakrawala berfikir kita tentang bagaimana kita menyikapi beragama di akhir zaman, semoga kita bisa saling menuntun dalam jalan kebaikan yang membuah kan Amal pahala untuk bekal di Akhirat nanti.
 
 Aamiin yaa rabbal ’aalamiin.
+
+Jika anda membutuhkan file PDF materi ini, silahkan [Download Disini.](https://github.com/taufiksarif/pdf/raw/main/Materi%201%20-%20kajian-tauhid-Iman-Islam-Ihsan.pdf)

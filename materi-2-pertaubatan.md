@@ -787,3 +787,5 @@ Selamat bertafakur.
 Sampai di sini dulu, apa yang bisa saya tuliskan untuk anda.
 
 Terima kasih telah meluangkan waktu nya, mudah mudahan ini bisa membuka cakrawala berfikir kita tentang bagaimana kita menyikapi beragama di akhir zaman, semoga kita bisa saling menuntun dalam jalan kebaikan yang membuah kan Amal pahala untuk bekal di Akhirat nanti.
+
+Jika anda membutuhkan file PDF materi ini, silahkan [Download Disini.](https://github.com/taufiksarif/pdf/raw/main/Materi%202%20-%20Kajian%20tauhid%20-%20Pertaubatan.pdf)

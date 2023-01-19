@@ -645,3 +645,5 @@ semoga apa yang saya uraikan di thread ini memberikan manfaat untuk kita semua d
 secara keseluruhan sudah ada 13 dari sifat 20 yang saya uraikan di sini.
 
 Dan untuk pembahasan dalam 7 Sifat Ma’nawiah, insha Allah saya akan tuliskan dalam uraian yang terpisah, karena dalam pembahasan sifat ma’nawiah akan mengurai fase fase kehidupan Manusia / makhluk sebagai bukti Penciptaan nya.
+
+Jika anda memerlukan file PDF materi ini, silahkan [Download Disini.](https://github.com/taufiksarif/pdf/raw/main/Materi%203%20-%20Sifat%2020%20Nafsiah-salbiah-mani.pdf)

@@ -451,3 +451,5 @@ Nah seluruh pembahasan ini menguraikan bahwa sesungguh nya kita ini tidak ada, k
 nah setelah seluruh uraian dalam tulisan ini maka kesimpulan nya Allah itu ada kita lah yang tidak ada, atau Allah tidak ada lalu kita lah yang ada, itu adalah pilihan.
 
 namun di sini, saya memiliki kewajiban menerangkan yang jika di urai oleh ilmu tauhid, kurang lebih seperti ini lah fase fase kehidupan manusia itu penjelasan nya.
+
+Jika anda memerlukan file PDF materi ini, silahkan [Download Disini.](https://github.com/taufiksarif/pdf/raw/main/Materi%204%20-%20Sifat%2020%20Manawiah.pdf)
