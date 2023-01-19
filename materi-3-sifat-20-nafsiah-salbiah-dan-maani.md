@@ -322,7 +322,7 @@ seperti karena kebutuhan hidup, terpaksa karena keadaan, karena memiliki kepenti
 
 Ta’aluq dari sifat Irodat adalah Yang Menetapkan, dan Ta’aluq dari sifat Qudrot adalah mengadakan atau meniadakan ketetapan tersebut.
 
-Jadi, jika AllahMenetapkan suatu perkara, maka Allahpun Berkuasa untuk mengadakan atau meniadakan perkara tersebut dengan segenap kuasa nya.
+Jadi, jika Allah Menetapkan suatu perkara, maka Allah pun Berkuasa untuk mengadakan atau meniadakan perkara tersebut dengan segenap kuasa nya.
 
 Begini penjelasan lebih lanjut nya, mudah mudahan agan dan sista bisa memahami penjelasan dan perumpamaan yang saya terangkan, hehehe.
 
@@ -338,7 +338,7 @@ sedangkan untuk Allah, apa yang di Irodat kan pasti akan Qudrot atau lebih jelas
 
 Saya berikan penjelasan sedikit rinci tentang hal ini untuk bahan tafakur akal kita bersama, begini penjelasan nya.
 
-Allahmemiliki Irodat (kehendak) untuk menciptakan kehidupan manusia, lalu Allahberkalam KUN (jadi) dan berikut nya FAYAKUN (jadilah) lalu Irodat tersebut selanjut nya menjadi Qodrat.
+Allah memiliki Irodat (kehendak) untuk menciptakan kehidupan manusia, lalu Allah berkalam KUN (jadi) dan berikut nya FAYAKUN (jadilah) lalu Irodat tersebut selanjut nya menjadi Qodrat.
 
 Fayakun pertama: Alam AHDAT, fayakun kedua :Alam WAHDAT, fayakun ketiga: Alam WAHIDIYAT, Fayakun ke empat: Alam ARWAH, Fayakun kelima: Alam JABARUT, Fayakun ke enam: Alam MITSAL, Fayakun ke Tujuh: Alam SEMPURNA (Alam Dunia)
 
@@ -346,7 +346,7 @@ Fayakun pertama: Alam AHDAT, fayakun kedua :Alam WAHDAT, fayakun ketiga: Alam WA
 
 jadi kita lanjut pembahasan sifat 20 nya aja ya, hehehe
 
-Nah, kisah penciptaan manusia Allahabadikan dalam surah Al Baqarah ayat ke 30 berikut ini:
+Nah, kisah penciptaan manusia Allah abadikan dalam surah Al Baqarah ayat ke 30 berikut ini:
 
 Wa iż qāla rabbuka lil-malā'ikati innī jā‘ilun fil-arḍi khalīfah(tan), qālū ataj‘alu fīhā may yufsidu fīhā wa yasfikud-dimā'(a), wa naḥnu nusabbiḥu biḥamdika wa nuqaddisu lak(a), qāla innī a‘lamu mā lā ta‘lamūn(a).
 
@@ -364,9 +364,9 @@ Jadi sebelum penciptaan tersebut Fayakun, segala sesuatu nya sudah di tetetapkan
 
 saya ambil contoh: kehidupan saya pribadi misal nya.
 
-Sebelum saya lahir ke dunia ini,segala sesuatu tentang saya sudah Allahtetapkan jauh jauh jauuuuuh sebelum nya.
+Sebelum saya lahir ke dunia ini,segala sesuatu tentang saya sudah Allah tetapkan jauh jauh jauuuuuh sebelum nya.
 
-mulai dari saya akan lahir kapan, bentuk fisik nya seperti apa,warna kulit nya, REJEKI nya, JODOH nya, AJAL nya, dan TAKDIR nya semua sudah di tetapkan, nah seluruh ketetapan itu di ibarat kan catatan lengkap perjalanan kehidupan, yang kemudian Allahsimpan di Baitul Izati langit ke Tujuh, yang selama ini kita kenal sebagai Lauhul Mahfudz.
+mulai dari saya akan lahir kapan, bentuk fisik nya seperti apa,warna kulit nya, REJEKI nya, JODOH nya, AJAL nya, dan TAKDIR nya semua sudah di tetapkan, nah seluruh ketetapan itu di ibarat kan catatan lengkap perjalanan kehidupan, yang kemudian Allah simpan di Baitul Izati langit ke Tujuh, yang selama ini kita kenal sebagai Lauhul Mahfudz.
 
 Lalu Allah Fayakun kan ketetapan untuk saya tersebut, di mulai dari saya dititipkan Hidup dengan sifat Hayatnya.
 
@@ -412,7 +412,7 @@ Sedangkan di dunia ini ber miliar miliar Makhluk hidup dari mulai manusia, binat
 
 maka dalam hal ini, tidak ada satu hal pun di dunia ini yang sifat nya KEBETULAN, karena semua sudah sesuai dengan ketetapan Nya.
 
-nah dari penjelasan inilah IRODAT dan QUDRAT tidak bisa di pisahkan karena berkesinambungan, apa yang AllahIrodat kan Pasti Qudrot.
+nah dari penjelasan inilah IRODAT dan QUDRAT tidak bisa di pisahkan karena berkesinambungan, apa yang Allah Irodat kan Pasti Qudrot.
 
 dan dari sifat IRODAT ada IZIN ALLAH ( biidznilah ) dan dari QUDROT ada PERINTAH DAN LARANGAN ALLAH.
 
