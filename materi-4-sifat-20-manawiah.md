@@ -74,6 +74,10 @@ Lalu, di tiupkan lah Ruh kita kedalam 7 Ruangan hati (hal ini di bahas dalam mat
 
 Saya berikan gambaran ilustrasi tentang 7 ruangan hati yang Allah ciptakan untuk menitipkan sifat sifat Nya sebagai gambaran akal kita agar lebih mudah dalam memahami nya.
 
+
+
+<figure><img src=".gitbook/assets/Materi 4 - Manawiah.png" alt=""><figcaption><p>7 Ruangan hati.</p></figcaption></figure>
+
 Sebelum usia kandungan 4 bulan hidup jabang bayi masih tergantung kepada hidup ibu nya,baik detak jantung nya, aliran darah nya, pertumbuhan, dan sebagai nya. maka, jika sebelum memasuki usia 4 bulan, lalu ibu nya meninggal jabang bayi pun ikut meninggal.
 
 namun saat kehamilan telah memasuki usia 4 Bulan jabang bayi sudah memiliki hidupnya sendiri dari sifat Hayyan dengan ciri-ciri jabang bayi tersebut mulai bisa bergerak dalam kandungan.
