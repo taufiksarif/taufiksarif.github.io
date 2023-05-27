@@ -1,5 +1,5 @@
 ---
-description: Belajar menelaah 14 penyakit dalam hati dalam diri manusia.
+description: Belajar menelaah 14 penyakit hati dalam diri manusia.
 ---
 
 # 14 Penyakit Hati.
