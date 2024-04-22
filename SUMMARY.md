@@ -8,3 +8,4 @@
 * [Materi 5 - Memahami Rejeki, Ajal, Jodoh, dan Takdir.](materi-5-memahami-rejeki-ajal-jodoh-dan-takdir..md)
 * [Nasihat pernikahan.](nasihat-pernikahan..md)
 * [14 Penyakit Hati.](14-penyakit-hati..md)
+* [Rukun Iman.](rukun-iman..md)
